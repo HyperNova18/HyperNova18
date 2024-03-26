@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @アビナフ
-- 👀 I’m interested in coding
+- 👀 I’m interested in coding "idk"
 - 🌱 I’m currently learning evrything on this planet
 - 💞️ I’m looking to collaborate on no one
 - 📫 How to reach me "You can't"

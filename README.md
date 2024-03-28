@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @アビナフ
 - 👀 I’m interested in coding "idk"
-- 🌱 I’m currently learning evrything on this planet
-- 💞️ I’m looking to collaborate on no one
+- 🌱 I’m currently learning everything on this planet
+- 💞️ I’m looking to collaborate with no one
 - 📫 How to reach me "You can't"
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: there is nothing 👀👀
